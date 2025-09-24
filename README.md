@@ -1,6 +1,6 @@
 # Emilio Villalba
 
-Ciudad Presidente Franco, Paraguay | 0985622675 | emiliovianconi@gmail.com | [LinkedIn](https://linkedin.com/in/emiliovillalba) | [LinkedIn](https://www.credly.com/users/emilio-villalba/edit/badges#credly)
+Ciudad Presidente Franco, Paraguay | 0985622675 | emiliovianconi@gmail.com | [LinkedIn](https://linkedin.com/in/emiliovillalba) | [Credly](https://www.credly.com/users/emilio-villalba/edit/badges#credly)
 
 ---
 
