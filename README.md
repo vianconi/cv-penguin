@@ -61,9 +61,7 @@ Ciudad Presidente Franco, Paraguay | 0985622675 | emiliovianconi@gmail.com | [Li
 *   **Ingeniería en Informática** | Universidad Privada del Este (2010)
 *   **Core Technical Skills (VCTA-DCV)** | VMware IT Academy (2021)
 *   **AWS Certified Cloud Practitioner** (2023)
-*   **Curso Oficial - Cisco-CCNA** (2020)
-*   **Curso Oficial - NSE 4 Network Security Professional** | Fortinet (2023)
-*   **IT Specialist - Networking & Network Security** (2022)
+*   **Cursos Oficiales - Cisco, Fortinet, Microsoft, Furukawa**
 
 ---
 
